@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning UX for the better understanding of user needs and requirements.
 - 📫 How to reach me: You can reach me through:
 - Email: saranshrestha103@gmail.com
-- Website: saranshrestha.com.np
+- Website: www.saranshrestha.com.np
 - LinkedIn: https://www.linkedin.com/in/saran-shrestha-8ab937259/
 - Instagram: https://www.instagram.com/saran.shrestha_/
 - 😄 Pronouns: ...
